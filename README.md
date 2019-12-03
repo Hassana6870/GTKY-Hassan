@@ -6,7 +6,7 @@ I was born in Pakistan.
 
 My favorite color is Black.
 
-My favorite 3 artist are Taylor Swift, Justin Beiber, and Selena Gomez.
+My favorite 3 artist are tyga, Justin Beiber, and Selena Gomez.
 
 On the weekends I like to stay home.
 
